@@ -1,0 +1,1 @@
+# swisstronik-mint-nft
